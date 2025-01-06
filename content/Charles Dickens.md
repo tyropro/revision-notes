@@ -5,7 +5,7 @@ tags:
 ---
 
 ### Charles Dickens experienced poverty as a child
-Dickens family was [[middle-class]], but he knew what it was like to be poor. When Dickens was twelve, his father was imprisoned for debt. The family was very poor, so Dickens had to work in a [[factory]]
+Dickens family was [[Middle-class|middle-class]], but he knew what it was like to be poor. When Dickens was twelve, his father was imprisoned for debt. The family was very poor, so Dickens had to work in a [[factory]]
 
 Dicken's experience of poverty made him critical of the way [[Victorian society]] treated it's poorest people.
 
