@@ -12,7 +12,8 @@ Dicken's experience of poverty made him critical of the way [[Victorian society]
 He believed the rich should help the poor.
 - Poverty was a huge problem in [[Victorian society]] particularly in over-crowded cities like [[London]].
 - Dickens was very concerned by this - his own experiences with poverty had taught him how unpleasant it could be.
-- 
+- He strongly believed that it was the responsibility of the wealthy to help those in who were in poverty. He believed that ignoring this responsibility would eventually cause much bigger problems.
+- Dickens urged people to help the poor by providing them with education and by donating to, and working with, charities.
 
 ### Timeline
 - 1812: Born on 7th February, in Portsmouth
